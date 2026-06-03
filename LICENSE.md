@@ -1,4 +1,4 @@
-# 
+# رسمي statistical arbitrage bot امتدادات لـ Mac OS | أصلي statistical arbitrage bot امتدادات لـ PC Windows. مع تداول الأزواج و تدقيق الأمن — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
